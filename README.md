@@ -4,6 +4,7 @@ all kinds of campaigns that i will run are here in this repo see my work samples
 # Campaigns - 1
 # Provacan | Email Marketing 📧
 My collaboration with the CBD company has been a great success, and the results speak for themselves. We were able to set up effective automation series and improve the design of their emails, resulting in an impressive average conversion rate of 53% over a collaboration of 7 months.
+
 ![1](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/2a295879-c6fc-403b-ba18-2a0612604ebb)
 
 ![2](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/9138e8b9-8886-4d0f-8df5-718877c7cd81)
@@ -17,6 +18,7 @@ My collaboration with the CBD company has been a great success, and the results 
 # Campaigns - 2
 # NH I Email Marketing 📧
 Over a time period of 11 months collaboration with Nature Hedonist. Our contribution of 35% on average conversions in email marketing for the brand is truly impressive. By highlighting the unique value proposition of the brand - effortless dressing with sustainable, modest pieces for women of all shapes and sizes - we have successfully resonated with there target audience, and helped build a loyal customer base.
+
 ![1](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/79234e7a-8865-42a4-bf9d-782b0f6a3cbf)
 
 ![2](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/1d4e3549-14eb-4c91-a7bd-b730153cd5fb)
