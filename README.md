@@ -43,3 +43,19 @@ Dive into the world of outdoor sports with Lake Land Kayaks, a dynamic and innov
 
 ![5](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/eeffce74-fe3d-47c0-9f4f-fefe5a873040)
 
+# Campaigns - 4
+# 2.9 Million Instagram | Email 📧
+During this exciting collaboration with the renowned brand Carolina Sandoval, our team provided expert consultation to enhance their email marketing strategy. Over the course of one month, we worked closely with the brand to implement strategic improvements, resulting in a remarkable scale-up from a 10% to an impressive 39% conversion rate. We are honored to have partnered with Carolina Sandoval, whose brand enjoys a massive following of 2.9 MILLION on Instagram. As a prominent Venezuelan anchor, broadcaster, TV presenter, and actress, Carolina is well-known for her roles in popular television chat shows such as 'Suelta la Sopa' (2013), 'Sabado Gigante', and 'Tombola'. Our collaboration aimed to strengthen the brand's digital presence and engagement, and we are delighted to have contributed to its continued success.
+
+![1](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/c642838c-0297-47c9-8906-db7d01c83afe)
+
+![2](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/04859987-5c5b-4861-b323-ed986f1375a4)
+
+![3](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/9f4631fd-13b5-453a-96aa-3328da48115d)
+
+![3](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/07cdaf09-670a-4008-b90e-e392c360649d)
+
+![4](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/5613a1c3-2a75-4571-abe8-4db70e70a7fd)
+
+![5](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/8042b162-538e-48b0-98ed-90ad06669cc8)
+
