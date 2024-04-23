@@ -59,3 +59,33 @@ During this exciting collaboration with the renowned brand Carolina Sandoval, ou
 
 ![5](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/8042b162-538e-48b0-98ed-90ad06669cc8)
 
+# Campaigns - 5
+# Tamashee | Footwear Brand
+As the Email Marketing Manager for Tamashee, a prestigious Arabian Gulf footwear brand located in Dubai, I successfully developed a comprehensive email marketing strategy from the ground up. Over a collaborative period of 7 months, we utilized Klaviyo as our email platform and achieved an impressive average conversion rate of 36%. Through careful planning and targeted campaigns, we effectively engaged brand audience, resulting in significant sales growth for the brand.
+
+![1](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/50491701-907a-4de7-96b2-5f1ad92ff8ee)
+
+![2](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/a30be5da-5216-4767-bc83-57979f698f05)
+
+![3](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/000a1397-b7f6-4d1f-b67d-0c69082cb56c)
+
+![4](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/dec25398-4b09-42ca-9c3e-bac3b7b31191)
+
+![5](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/609df890-27b5-43c2-8927-67bc13a21dcb)
+
+# Campaigns - 6
+# Clear Essence
+As the Email Marketing Manager for Clear Essence Cosmetics USA, Inc. dba Bluefield Associates, Inc., I successfully achieved a remarkable 27% conversion rate from Klaviyo. I built the entire email funnel from scratch, leveraging brand's unique story and values.
+
+![1](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/e7d9d351-8a3d-4e71-8f24-52c8cc4595db)
+
+![2](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/d32e3e8d-ed2a-470e-b8f0-4e5b932d21a5)
+
+![3](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/0a988830-694e-42c7-8bc2-6ed5498589f7)
+
+![4](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/0f491394-9773-4be2-bff6-dfb77f6092c0)
+
+![5](https://github.com/jkbells/Email-Marketing-Campaigns/assets/73393333/ae629006-9284-42df-96e6-69f08ca3dc01)
+
+
+
